@@ -12,5 +12,6 @@ Miguel Ángel Rivera Flórez
 1152467107
 Ingeniería de Materiales
 
-segunda entreaga
+Segunda entreaga
 https://youtu.be/PEPnZ4h9w5g
+Entrega Final
